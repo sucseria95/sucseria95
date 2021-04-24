@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **Shubhamsucseria@gmail.com**
 
-- ⚡ Fun fact **I think I am very passionate about my skills**
+- ⚡ Fun fact **I think I am an IT Guy with very good sense of humor**
 
 
 <h3 align="left">Languages and Tools:</h3>
